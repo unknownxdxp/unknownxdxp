@@ -1,2 +1,3 @@
+[README (2).md](https://github.com/user-attachments/files/23096271/README.2.md)
 
-<img width="736" height="736" alt="ce7f26781cb5d96c000b7baa233c4404" src="https://github.com/de4nf00l/de4nf00l/blob/main/ce7f26781cb5d96c000b7baa233c4404.jpg"/>
+<img width="2560" height="1440" alt="photo_2025-10-23_13-58-37" src="https://github.com/de4nf00l/oo/blob/main/photo_2025-10-23_13-58-37.jpg"/>
